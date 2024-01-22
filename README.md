@@ -11,3 +11,9 @@
 
 СИТП 2024
 
+![image](https://github.com/elstrak/buymezachet/assets/89124030/adc8cae9-bfd1-4460-9e56-de6a6fc39fff)
+
+![image](https://github.com/elstrak/buymezachet/assets/89124030/3c163faf-2ff5-4704-b0ef-4d2ec9d931b1)
+
+
+
